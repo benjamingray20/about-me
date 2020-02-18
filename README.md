@@ -1,1 +1,1 @@
-# about-me
+My name is Ben Gray. I am a IT specialist for Somerville Public Schools. I have 10 years of experience in IT support. My expertise is in classroom technology and training teachers/staff on how to use technology. I have held positions as IT support, IT specialist, and Digital Learning Specialist. For fun I like to watch/play soccer and Hockey. I love animals, travel, and food.
